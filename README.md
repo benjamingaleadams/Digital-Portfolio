@@ -18,7 +18,5 @@ Event poster for Maryland Young Democrats: a canvass and after-party targeting M
 <br><b>Small Business Grant Outreach</b><br>
 Instagram post (1080×1350) for an application to Congresswoman Emily Randall's office, promoting help with SBA grants and loans.
 </td>
-<td width="33%" valign="top">
-</td>
 </tr>
 </table>
