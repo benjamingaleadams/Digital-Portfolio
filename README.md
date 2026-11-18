@@ -2,7 +2,6 @@
 
 Ben Adams: digital graphics for campaigns and political organizing.
 
-I make graphics that get people to do something: show up to a canvass, apply for help their representative's office can give them, or get to the polls before they close. I like bold type, one clear message per graphic, and a call to action you can read in the second it takes to scroll past. Most of my work is built for Instagram and event promotion, sized and laid out for the platform it's posted on.
 
 ## Graphics
 
